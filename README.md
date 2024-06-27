@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello Im new here :)
+Hello Im new here ⚡
 
 
 ## 🌐 Socials:
